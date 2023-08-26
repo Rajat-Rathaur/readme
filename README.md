@@ -1,1 +1,1 @@
-# readme
+It is better to be looked over than overlooked. | **by Mae West**

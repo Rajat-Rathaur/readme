@@ -1,1 +1,1 @@
-It is better to be looked over than overlooked. | **by Mae West**
+Human beings can alter their lives by altering their attitudes of mind. | **by William James**

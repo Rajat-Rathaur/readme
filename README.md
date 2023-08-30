@@ -1,1 +1,1 @@
-No one can confidently say that he will still be living tomorrow. | **by Euripides**
+What you get by achieving your goals is not as important as what you become by achieving your goals. | **by Henry David Thoreau**

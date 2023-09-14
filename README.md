@@ -1,1 +1,1 @@
-Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.  | **by Lao Tzu**
+He who laughs at himself never runs out of things to laugh at. | **by Epictetus**

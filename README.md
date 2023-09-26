@@ -1,1 +1,1 @@
-The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. | **by Bhagavad Gita**
+Choose a job you love, and you will never have to work a day in your life.  | **by Confucius**

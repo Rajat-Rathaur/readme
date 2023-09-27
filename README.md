@@ -1,1 +1,1 @@
-Choose a job you love, and you will never have to work a day in your life.  | **by Confucius**
+Hope and fear come from feeling that we lack something; they come from a sense of poverty. | **by Pema Chodron**

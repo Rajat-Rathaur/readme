@@ -1,1 +1,1 @@
-Success comes to those who become success conscious. | **by Napoleon Hill**
+Empty yourself of everything - let the mind become still. | **by Lao Tzu**

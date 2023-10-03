@@ -1,1 +1,1 @@
-Empty yourself of everything - let the mind become still. | **by Lao Tzu**
+Knowing is not enough, we must apply. Willing is not enough, we must do. | **by Johann Wolfgang von Goethe**

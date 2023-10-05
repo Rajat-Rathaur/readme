@@ -1,1 +1,1 @@
-Knowing is not enough, we must apply. Willing is not enough, we must do. | **by Johann Wolfgang von Goethe**
+To arrive at the simplest truth requires years of contemplation. | **by Isaac Newton**

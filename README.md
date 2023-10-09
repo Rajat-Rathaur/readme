@@ -1,1 +1,1 @@
-To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. | **by Johann Wolfgang von Goethe**
+Happiness depends upon ourselves. | **by Aristotle**

@@ -1,1 +1,1 @@
-Live your life as an exclamation rather than an explanation. | **by Isaac Newton**
+Friendship takes time and energy if it's going to work. | **by Betty White**

@@ -1,1 +1,1 @@
-What you resist, persists. | **by Carl Jung**
+Better late than never. | **by Spencer Johnson**

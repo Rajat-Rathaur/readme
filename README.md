@@ -1,1 +1,1 @@
-Wheels of justice grind slow but grind fine. | **by Sun Tzu**
+Do not regret the past. Look to the future. | **by Soyen Shaku**

@@ -1,1 +1,1 @@
-Do not regret the past. Look to the future. | **by Soyen Shaku**
+No one ever is defeated until defeat has been accepted as a reality. | **by Napoleon Hill**

@@ -1,1 +1,1 @@
-No one ever is defeated until defeat has been accepted as a reality. | **by Napoleon Hill**
+At the center of your being you have the answer; you know who you are and you know what you want. | **by Lao Tzu**

@@ -1,1 +1,1 @@
-At the center of your being you have the answer; you know who you are and you know what you want. | **by Lao Tzu**
+Don't be pushed by your problems; be led by your dreams. | **by Unknown**

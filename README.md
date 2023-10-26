@@ -1,1 +1,1 @@
-Don't be pushed by your problems; be led by your dreams. | **by Unknown**
+The present moment is filled with joy and happiness. If you are attentive, you will see it. | **by Thich Nhat Hanh**

@@ -1,1 +1,1 @@
-The present moment is filled with joy and happiness. If you are attentive, you will see it. | **by Thich Nhat Hanh**
+Fashion fades, only style remains the same. | **by Coco Chanel**

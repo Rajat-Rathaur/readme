@@ -1,1 +1,1 @@
-Choose a job you love, and you will never have to work a day in your life.  | **by Confucius**
+In life you need either inspiration or desperation. | **by Tony Robbins**

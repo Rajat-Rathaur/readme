@@ -1,1 +1,1 @@
-In life you need either inspiration or desperation. | **by Tony Robbins**
+If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you. | **by Simon Sinek**

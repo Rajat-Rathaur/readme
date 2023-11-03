@@ -1,1 +1,1 @@
-No kind action ever stops with itself. One kind action leads to another. Good example is followed. | **by Amelia Earhart**
+Change will not come if we wait for some other person, or if we wait for some other time. | **by Barack Obama**

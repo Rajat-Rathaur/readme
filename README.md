@@ -1,1 +1,1 @@
-Change will not come if we wait for some other person, or if we wait for some other time. | **by Barack Obama**
+Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend. | **by Zen Proverb**

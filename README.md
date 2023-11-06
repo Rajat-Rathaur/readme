@@ -1,1 +1,1 @@
-Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend. | **by Zen Proverb**
+Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy. | **by Ralph Marston**

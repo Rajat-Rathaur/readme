@@ -1,1 +1,1 @@
-Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy. | **by Ralph Marston**
+Problems remain as problems because people are busy defending them rather than finding solutions. | **by Celestine Chua**

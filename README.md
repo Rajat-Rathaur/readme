@@ -1,1 +1,1 @@
-Problems remain as problems because people are busy defending them rather than finding solutions. | **by Celestine Chua**
+Sometimes letting things go is an act of far greater power than defending or hanging on. | **by Eckhart Tolle**

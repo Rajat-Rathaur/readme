@@ -1,1 +1,1 @@
-Sometimes letting things go is an act of far greater power than defending or hanging on. | **by Eckhart Tolle**
+Life has more imagination than we carry in our dreams. | **by Christopher Columbus**

@@ -1,1 +1,1 @@
-Life has more imagination than we carry in our dreams. | **by Christopher Columbus**
+Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love. | **by Morihei Ueshiba**

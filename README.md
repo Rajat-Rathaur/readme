@@ -1,1 +1,1 @@
-Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love. | **by Morihei Ueshiba**
+The giving of love is an education in itself. | **by Eleanor Roosevelt**

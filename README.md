@@ -1,1 +1,1 @@
-The giving of love is an education in itself. | **by Eleanor Roosevelt**
+In all chaos there is a cosmos, in all disorder a secret order. | **by Carl Jung**

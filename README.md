@@ -1,1 +1,1 @@
-When the fish is caught we pay no more attention to the trap. | **by Huang Po**
+Motivation is what gets you started. Habit is what keeps you going. | **by Jim Rohn**

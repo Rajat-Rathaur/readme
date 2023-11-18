@@ -1,1 +1,1 @@
-Motivation is what gets you started. Habit is what keeps you going. | **by Jim Rohn**
+Let us always meet each other with smile, for the smile is the beginning of love. | **by Mother Teresa**

@@ -1,1 +1,1 @@
-Let us always meet each other with smile, for the smile is the beginning of love. | **by Mother Teresa**
+Stop being a prisoner of your past. Become the architect of your future. | **by Robin Sharma**

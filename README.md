@@ -1,1 +1,1 @@
-Stop being a prisoner of your past. Become the architect of your future. | **by Robin Sharma**
+You can't go forward and backwards at the same time. | **by Steve Harvey**

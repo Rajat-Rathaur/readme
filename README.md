@@ -1,1 +1,1 @@
-You can't go forward and backwards at the same time. | **by Steve Harvey**
+Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. | **by Thomas Jefferson**

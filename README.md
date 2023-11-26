@@ -1,1 +1,1 @@
-Your only obligation in any lifetime is to be true to yourself. | **by Richard Bach**
+The person who cannot control his words shows that he cannot control himself. | **by Robert Greene**

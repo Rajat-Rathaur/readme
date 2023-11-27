@@ -1,1 +1,1 @@
-The person who cannot control his words shows that he cannot control himself. | **by Robert Greene**
+What you seek is seeking you. | **by Rumi**

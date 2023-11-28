@@ -1,1 +1,1 @@
-What you seek is seeking you. | **by Rumi**
+A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. | **by Criss Jami**

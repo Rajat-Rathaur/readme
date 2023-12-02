@@ -1,1 +1,1 @@
-A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. | **by Criss Jami**
+Everyone you meet is fighting a battle you know nothing about. Be kind. Always. | **by Robin Williams**

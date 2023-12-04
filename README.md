@@ -1,1 +1,1 @@
-Everyone you meet is fighting a battle you know nothing about. Be kind. Always. | **by Robin Williams**
+Live simply, expect little, give much. | **by Norman Vincent Peale**

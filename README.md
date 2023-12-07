@@ -1,1 +1,1 @@
-You have to make time, even for something as universal as staring at the stars. | **by W.P. Kinsella**
+Success is about creating value. | **by Candice Carpenter**

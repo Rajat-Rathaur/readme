@@ -1,1 +1,1 @@
-Success is about creating value. | **by Candice Carpenter**
+Even when a friend does something you do not like, he continues to be your friend.  | **by Genghis Khan**

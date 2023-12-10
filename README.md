@@ -1,1 +1,1 @@
-Much learning does not teach understanding. | **by Heraclitus**
+Difficult and meaningful will always bring more satisfaction than easy and meaningless. | **by Maxime Lagace**

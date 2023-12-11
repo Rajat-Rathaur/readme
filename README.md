@@ -1,1 +1,1 @@
-Difficult and meaningful will always bring more satisfaction than easy and meaningless. | **by Maxime Lagace**
+The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one. | **by Mark Twain**

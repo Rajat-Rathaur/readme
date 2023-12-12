@@ -1,1 +1,1 @@
-The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one. | **by Mark Twain**
+When you know what you want, and want it bad enough, you will find a way to get it. | **by Jim Rohn**

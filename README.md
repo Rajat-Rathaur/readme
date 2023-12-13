@@ -1,1 +1,1 @@
-When you know what you want, and want it bad enough, you will find a way to get it. | **by Jim Rohn**
+Nothing ever happened in the past that can prevent you from being present now; and if the past cannot prevent you from being present now, what power does it have? | **by Eckhart Tolle**

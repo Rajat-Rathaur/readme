@@ -1,1 +1,1 @@
-There is peace even in the storm. | **by Vincent van Gogh**
+No quotes exist

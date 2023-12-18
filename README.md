@@ -1,1 +1,1 @@
-The single biggest problem in communication is the illusion that it has taken place. | **by George Bernard Shaw**
+Preoccupied with a single leaf you won't see the tree. | **by Unknown**

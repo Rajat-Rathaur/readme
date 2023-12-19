@@ -1,1 +1,1 @@
-Preoccupied with a single leaf you won't see the tree. | **by Unknown**
+Fear can hold you prisoner. Hope can set you free. | **by Stephen King**

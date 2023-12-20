@@ -1,1 +1,1 @@
-Fear can hold you prisoner. Hope can set you free. | **by Stephen King**
+The meaning of life is to find your gift. The purpose of life is to give it away. | **by Pablo Picasso**

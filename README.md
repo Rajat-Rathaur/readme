@@ -1,1 +1,1 @@
-The meaning of life is to find your gift. The purpose of life is to give it away. | **by Pablo Picasso**
+Fear is a natural reaction to moving closer to the truth. | **by Pema Chodron**

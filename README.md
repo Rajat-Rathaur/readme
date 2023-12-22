@@ -1,1 +1,1 @@
-Fear is a natural reaction to moving closer to the truth. | **by Pema Chodron**
+An investment in knowledge pays the best interest. | **by Benjamin Franklin**

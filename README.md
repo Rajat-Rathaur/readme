@@ -1,1 +1,1 @@
-An investment in knowledge pays the best interest. | **by Benjamin Franklin**
+Short cuts make long delays. | **by J.R.R. Tolkien**

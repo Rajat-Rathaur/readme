@@ -1,1 +1,1 @@
-Short cuts make long delays. | **by J.R.R. Tolkien**
+It's your road, and yours alone, others may walk it with you, but no one can walk it for you. | **by Rumi**

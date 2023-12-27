@@ -1,1 +1,1 @@
-It's your road, and yours alone, others may walk it with you, but no one can walk it for you. | **by Rumi**
+The busy man is never wise and the wise man is never busy. | **by Lin Yutang**

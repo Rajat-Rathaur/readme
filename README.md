@@ -1,1 +1,1 @@
-The busy man is never wise and the wise man is never busy. | **by Lin Yutang**
+You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. | **by Steve Maraboli**

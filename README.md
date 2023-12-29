@@ -1,1 +1,1 @@
-You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. | **by Steve Maraboli**
+A person is only by the thoughts that he chooses. | **by James Allen**

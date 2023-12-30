@@ -1,1 +1,1 @@
-A person is only by the thoughts that he chooses. | **by James Allen**
+Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. | **by Carl Jung**

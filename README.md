@@ -1,1 +1,1 @@
-Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. | **by Carl Jung**
+You're never too old for anything. | **by Betty White**

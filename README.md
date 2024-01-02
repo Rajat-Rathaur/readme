@@ -1,1 +1,1 @@
-You're never too old for anything. | **by Betty White**
+You can never get enough of what you don't need to make you happy. | **by Eric Hoffer**

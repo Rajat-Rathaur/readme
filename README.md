@@ -1,1 +1,1 @@
-You can never get enough of what you don't need to make you happy. | **by Eric Hoffer**
+Happiness is the spiritual experience of living every minute with love, grace and gratitude. | **by Denis Waitley**

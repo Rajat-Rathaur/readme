@@ -1,1 +1,1 @@
-Happiness is the spiritual experience of living every minute with love, grace and gratitude. | **by Denis Waitley**
+People who bite the hand that feeds them usually lick the boot that kicks them. | **by Eric Hoffer**

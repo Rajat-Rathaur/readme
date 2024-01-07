@@ -1,1 +1,1 @@
-People who bite the hand that feeds them usually lick the boot that kicks them. | **by Eric Hoffer**
+There is nothing more frightful than ignorance in action. | **by Johann Wolfgang von Goethe**

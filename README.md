@@ -1,1 +1,1 @@
-There is nothing more frightful than ignorance in action. | **by Johann Wolfgang von Goethe**
+Either get busy living or get busy dying. | **by Stephen King**

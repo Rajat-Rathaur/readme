@@ -1,1 +1,1 @@
-Either get busy living or get busy dying. | **by Stephen King**
+Anyone who wants to achieve a dream must stay strong, focused and steady. | **by Estee Lauder**

@@ -1,1 +1,1 @@
-Anyone who wants to achieve a dream must stay strong, focused and steady. | **by Estee Lauder**
+Arise, slay thy enemies, enjoy a prosperous kingdom. | **by Bhagavad Gita**

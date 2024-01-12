@@ -1,1 +1,1 @@
-Arise, slay thy enemies, enjoy a prosperous kingdom. | **by Bhagavad Gita**
+If you can see it in your mind, you can hold it in your mind. | **by Steve Harvey**

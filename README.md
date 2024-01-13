@@ -1,1 +1,1 @@
-If you can see it in your mind, you can hold it in your mind. | **by Steve Harvey**
+If you want work well done, select a busy man; the other kind has no time. | **by Elbert Hubbard**

@@ -1,1 +1,1 @@
-If you want work well done, select a busy man; the other kind has no time. | **by Elbert Hubbard**
+Getting lost along your path is a part of finding the path you are meant to be on. | **by Robin Sharma**

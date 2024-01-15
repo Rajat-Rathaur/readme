@@ -1,1 +1,1 @@
-Getting lost along your path is a part of finding the path you are meant to be on. | **by Robin Sharma**
+If it is not right, do not do it, if it is not true, do not say it. | **by Marcus Aurelius**

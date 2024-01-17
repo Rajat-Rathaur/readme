@@ -1,1 +1,1 @@
-Show me a hero, and I'll write you a tragedy. | **by F. Scott Fitzgerald**
+Where does a thought go when it's forgotten? | **by Sigmund Freud**

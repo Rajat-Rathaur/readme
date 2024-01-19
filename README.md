@@ -1,1 +1,1 @@
-Where does a thought go when it's forgotten? | **by Sigmund Freud**
+He who has overcome his fears will truly be free. | **by Aristotle**

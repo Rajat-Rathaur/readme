@@ -1,1 +1,1 @@
-He who has overcome his fears will truly be free. | **by Aristotle**
+If you don't break your ropes while you're alive, do you think ghosts will do it after? | **by Kabir**

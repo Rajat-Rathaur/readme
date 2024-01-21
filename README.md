@@ -1,1 +1,1 @@
-If you don't break your ropes while you're alive, do you think ghosts will do it after? | **by Kabir**
+Failure is the key to success; each mistake teaches us something. | **by Morihei Ueshiba**

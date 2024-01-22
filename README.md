@@ -1,1 +1,1 @@
-Failure is the key to success; each mistake teaches us something. | **by Morihei Ueshiba**
+A wise man can learn more from a foolish question than a fool can learn from a wise answer.   | **by Bruce Lee**

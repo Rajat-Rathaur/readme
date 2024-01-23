@@ -1,1 +1,1 @@
-A wise man can learn more from a foolish question than a fool can learn from a wise answer.   | **by Bruce Lee**
+If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month. | **by Theodore Roosevelt**

@@ -1,1 +1,1 @@
-No man is more cheated than the selfish man. | **by Henry Ward Beecher**
+Many a man has failed because he had his wishbone where his backbone should have been. | **by Ronald Reagan**

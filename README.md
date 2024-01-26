@@ -1,1 +1,1 @@
-Many a man has failed because he had his wishbone where his backbone should have been. | **by Ronald Reagan**
+If you don't have time to do it right, when will you have time to do it over? | **by John Wooden**

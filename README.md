@@ -1,1 +1,1 @@
-If you don't have time to do it right, when will you have time to do it over? | **by John Wooden**
+It is not how much we have, but how much we enjoy, that makes happiness. | **by Charles Spurgeon**

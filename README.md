@@ -1,1 +1,1 @@
-It is not how much we have, but how much we enjoy, that makes happiness. | **by Charles Spurgeon**
+If you've made a mistake, it's better just to laugh at it. | **by Zen Proverb**

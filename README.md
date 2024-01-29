@@ -1,1 +1,1 @@
-If you've made a mistake, it's better just to laugh at it. | **by Zen Proverb**
+Life is growth. If we stop growing, technically and spiritually, we are as good as dead. | **by Morihei Ueshiba**

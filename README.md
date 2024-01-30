@@ -1,1 +1,1 @@
-Life is growth. If we stop growing, technically and spiritually, we are as good as dead. | **by Morihei Ueshiba**
+Perfection is not attainable, but if we chase perfection we can catch excellence. | **by Vince Lombardi**

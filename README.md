@@ -1,1 +1,1 @@
-Perfection is not attainable, but if we chase perfection we can catch excellence. | **by Vince Lombardi**
+Live the moment for the moment. | **by Michael Jordan**

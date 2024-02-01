@@ -1,1 +1,1 @@
-Live the moment for the moment. | **by Michael Jordan**
+If you look for perfection, you'll never be content. | **by Leo Tolstoy**

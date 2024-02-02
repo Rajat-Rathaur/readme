@@ -1,1 +1,1 @@
-If you look for perfection, you'll never be content. | **by Leo Tolstoy**
+You don't have to be great to start, but you have to start to be great.   | **by Zig Ziglar**

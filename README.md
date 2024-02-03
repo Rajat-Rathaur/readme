@@ -1,1 +1,1 @@
-You don't have to be great to start, but you have to start to be great.   | **by Zig Ziglar**
+There is no absolute success in the world, only constant progress. | **by Jonathan Swift**

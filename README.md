@@ -1,1 +1,1 @@
-There is no absolute success in the world, only constant progress. | **by Jonathan Swift**
+How many times do you have to get hit over the head until you figure out who's hitting you? | **by Harry S. Truman**

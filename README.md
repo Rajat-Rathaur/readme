@@ -1,1 +1,1 @@
-How many times do you have to get hit over the head until you figure out who's hitting you? | **by Harry S. Truman**
+Be brave enough to suck at something new. | **by Unknown**

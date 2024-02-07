@@ -1,1 +1,1 @@
-As soon as you trust yourself, you will know how to live. | **by Johann Wolfgang von Goethe**
+Even if you're sure you can win, be careful that you can live with what you lose. | **by Gary Keller**

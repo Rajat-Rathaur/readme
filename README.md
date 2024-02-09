@@ -1,1 +1,1 @@
-Use your smile to change the world but don't let the world change your smile. | **by Unknown**
+A gentleman accepts the responsibility of his actions and bears the burden of their consequences. | **by William Faulkner**

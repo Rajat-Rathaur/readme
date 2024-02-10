@@ -1,1 +1,1 @@
-A gentleman accepts the responsibility of his actions and bears the burden of their consequences. | **by William Faulkner**
+A memory is a beautiful thing, it's almost a desire that you miss. | **by Gustave Flaubert**

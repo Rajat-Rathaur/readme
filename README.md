@@ -1,1 +1,1 @@
-A memory is a beautiful thing, it's almost a desire that you miss. | **by Gustave Flaubert**
+Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail. | **by Arnold Schwarzenegger**

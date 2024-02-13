@@ -1,1 +1,1 @@
-Life is not just the passing of time. Life is the collection of experiences and their intensity. | **by Jim Rohn**
+You are free, and that is why you are lost. | **by Franz Kafka**

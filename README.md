@@ -1,1 +1,1 @@
-You are free, and that is why you are lost. | **by Franz Kafka**
+You are not only responsible for what you say, but also for what you do not say.  | **by Martin Luther**

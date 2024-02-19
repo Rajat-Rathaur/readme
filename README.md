@@ -1,1 +1,1 @@
-If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present. | **by Lao Tzu**
+To arrive at the simplest truth requires years of contemplation. | **by Isaac Newton**

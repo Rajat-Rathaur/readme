@@ -1,1 +1,1 @@
-To arrive at the simplest truth requires years of contemplation. | **by Isaac Newton**
+Success is the sum of small efforts, repeated day in and day out. | **by Robert Collier**

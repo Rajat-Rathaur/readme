@@ -1,1 +1,1 @@
-Success is the sum of small efforts, repeated day in and day out. | **by Robert Collier**
+The important thing is not to stop questioning. Curiosity has its own reason for existing. | **by Albert Einstein**

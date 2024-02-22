@@ -1,1 +1,1 @@
-The important thing is not to stop questioning. Curiosity has its own reason for existing. | **by Albert Einstein**
+When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. | **by Peter A. Cohen**

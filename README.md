@@ -1,1 +1,1 @@
-Human behavior flows from three main sources: desire, emotion, and knowledge. | **by Plato**
+Most of the important things in the world have been accompanied by people who have kept on trying when there seemed to be no hope at all. | **by Dale Carnegie**

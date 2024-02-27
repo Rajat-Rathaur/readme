@@ -1,1 +1,1 @@
-Most of the important things in the world have been accompanied by people who have kept on trying when there seemed to be no hope at all. | **by Dale Carnegie**
+What most people need to learn in life is how to love people and use things instead of using people and loving things. | **by Unknown**

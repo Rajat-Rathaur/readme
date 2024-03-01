@@ -1,1 +1,1 @@
-It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future. | **by Nicolas Chamfort**
+Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty. | **by Theodore Roosevelt**

@@ -1,1 +1,1 @@
-Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty. | **by Theodore Roosevelt**
+Always forgive your enemies - nothing annoys them so much.  | **by Oscar Wilde**

@@ -1,1 +1,1 @@
-Always forgive your enemies - nothing annoys them so much.  | **by Oscar Wilde**
+A golden cage is still just a cage. | **by Anita Krizzan**

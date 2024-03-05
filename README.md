@@ -1,1 +1,1 @@
-Confidence comes not from always being right but not fearing to be wrong. | **by Unknown**
+If you want to keep your memories, you first have to live them. | **by Bob Dylan**

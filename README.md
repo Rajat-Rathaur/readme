@@ -1,1 +1,1 @@
-If you want to keep your memories, you first have to live them. | **by Bob Dylan**
+Where there's life, there's hope. | **by Stephen Hawking**

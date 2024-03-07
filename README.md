@@ -1,1 +1,1 @@
-Where there's life, there's hope. | **by Stephen Hawking**
+You don't need to be better than anyone else, you just need to be better than you used to be. | **by Wayne Dyer**

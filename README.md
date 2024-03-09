@@ -1,1 +1,1 @@
-Better to live until you die. | **by Dan Millman**
+The power of human thought grows exponentially with the number of minds that share that thought. | **by Dan Brown**

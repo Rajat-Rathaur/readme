@@ -1,1 +1,1 @@
-The power of human thought grows exponentially with the number of minds that share that thought. | **by Dan Brown**
+Would you rather learn to deal with the truth now than be forced to do so later on? | **by Celestine Chua**

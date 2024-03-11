@@ -1,1 +1,1 @@
-Would you rather learn to deal with the truth now than be forced to do so later on? | **by Celestine Chua**
+Respect is earned by effort not age, all things age without effort. | **by C. Sean McGee**

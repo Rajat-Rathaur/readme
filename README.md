@@ -1,1 +1,1 @@
-Respect is earned by effort not age, all things age without effort. | **by C. Sean McGee**
+If you can't feed a hundred people, then feed just one. | **by Mother Teresa**

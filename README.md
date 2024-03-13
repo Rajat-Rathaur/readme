@@ -1,1 +1,1 @@
-If you can't feed a hundred people, then feed just one. | **by Mother Teresa**
+To accomplish big things, I am convinced you must first dream big dreams. | **by Conrad Hilton**

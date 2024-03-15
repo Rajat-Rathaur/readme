@@ -1,1 +1,1 @@
-You can't build a reputation on what you are going to do.  | **by Henry Ford**
+We take care of the future best by taking care of the present now. | **by Jon Kabat-Zinn**

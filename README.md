@@ -1,1 +1,1 @@
-The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety. | **by Sathya Sai Baba**
+If you love life, don't waste time, for time is what life is made up of.  | **by Bruce Lee**

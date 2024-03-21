@@ -1,1 +1,1 @@
-If you love life, don't waste time, for time is what life is made up of.  | **by Bruce Lee**
+The truth is not for all men, but for those who seek it. | **by Ayn Rand**

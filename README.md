@@ -1,1 +1,1 @@
-The truth is not for all men, but for those who seek it. | **by Ayn Rand**
+Be a good animal, true to your instincts. | **by D. H. Lawrence**

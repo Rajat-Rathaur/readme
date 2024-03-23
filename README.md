@@ -1,1 +1,1 @@
-Be a good animal, true to your instincts. | **by D. H. Lawrence**
+Silence is a source of great strength. | **by Lao Tzu**

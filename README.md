@@ -1,1 +1,1 @@
-Silence is a source of great strength. | **by Lao Tzu**
+If fear is too strong, the genius is suppressed. | **by Robert Kiyosaki**

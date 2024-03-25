@@ -1,1 +1,1 @@
-If fear is too strong, the genius is suppressed. | **by Robert Kiyosaki**
+A thing must be loved before it is lovable. | **by Gilbert Chesterton**

@@ -1,1 +1,1 @@
-A thing must be loved before it is lovable. | **by Gilbert Chesterton**
+Not everything that weighs you down is yours to carry. | **by Unknown**

@@ -1,1 +1,1 @@
-Not everything that weighs you down is yours to carry. | **by Unknown**
+Not why the addiction but why the pain. | **by Gabor Mate**

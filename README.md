@@ -1,1 +1,1 @@
-Not why the addiction but why the pain. | **by Gabor Mate**
+Being a good example is the best form of service. | **by Sathya Sai Baba**

@@ -1,1 +1,1 @@
-Being a good example is the best form of service. | **by Sathya Sai Baba**
+Unless someone truly has the power to say no, they never truly have the power to say yes. | **by Dan Millman**

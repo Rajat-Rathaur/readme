@@ -1,1 +1,1 @@
-It doesn't matter where you are coming from. All that matters is where you are going.  | **by Brian Tracy**
+The strength of a wall is neither greater nor less than the courage of the men who defend it.  | **by Genghis Khan**

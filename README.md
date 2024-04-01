@@ -1,1 +1,1 @@
-The strength of a wall is neither greater nor less than the courage of the men who defend it.  | **by Genghis Khan**
+It is ignorance that causes most mistakes. | **by Harry S. Truman**

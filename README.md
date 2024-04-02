@@ -1,1 +1,1 @@
-It is ignorance that causes most mistakes. | **by Harry S. Truman**
+Nature is pleased with simplicity. And nature is no dummy. | **by Isaac Newton**

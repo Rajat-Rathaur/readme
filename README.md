@@ -1,1 +1,1 @@
-Nature is pleased with simplicity. And nature is no dummy. | **by Isaac Newton**
+The ones who are crazy enough to think they can change the world, are the ones that do. | **by Steve Jobs**

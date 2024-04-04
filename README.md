@@ -1,1 +1,1 @@
-The ones who are crazy enough to think they can change the world, are the ones that do. | **by Steve Jobs**
+Everyone has the right to make his own decisions, but none has the right to force his decision on others. | **by Ayn Rand**

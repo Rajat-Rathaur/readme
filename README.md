@@ -1,1 +1,1 @@
-Everyone has the right to make his own decisions, but none has the right to force his decision on others. | **by Ayn Rand**
+The right thing to do and the hard thing to do are usually the same. | **by Steve Maraboli**

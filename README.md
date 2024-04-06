@@ -1,1 +1,1 @@
-The right thing to do and the hard thing to do are usually the same. | **by Steve Maraboli**
+When it comes to mastering a skill, time is the magic ingredient. | **by Robert Greene**

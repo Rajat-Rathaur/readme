@@ -1,1 +1,1 @@
-When it comes to mastering a skill, time is the magic ingredient. | **by Robert Greene**
+Learn only how to avoid seeking for and attaching yourselves to anything. | **by Huang Po**

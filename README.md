@@ -1,1 +1,1 @@
-Learn only how to avoid seeking for and attaching yourselves to anything. | **by Huang Po**
+As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others. | **by Audrey Hepburn**

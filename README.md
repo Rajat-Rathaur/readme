@@ -1,1 +1,1 @@
-As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others. | **by Audrey Hepburn**
+Just throw away all thoughts of imaginary things, and stand firm in that which you are. | **by Kabir**

@@ -1,1 +1,1 @@
-Just throw away all thoughts of imaginary things, and stand firm in that which you are. | **by Kabir**
+The way to love anything is to realize that it may be lost. | **by Gilbert Chesterton**

@@ -1,1 +1,1 @@
-The way to love anything is to realize that it may be lost. | **by Gilbert Chesterton**
+Genius is patience. | **by Isaac Newton**

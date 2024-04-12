@@ -1,1 +1,1 @@
-Genius is patience. | **by Isaac Newton**
+Wrong turns are as important as right turns. More important, sometimes. | **by Richard Bach**

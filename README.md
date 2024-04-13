@@ -1,1 +1,1 @@
-Wrong turns are as important as right turns. More important, sometimes. | **by Richard Bach**
+Everyone is a moon, and has a dark side which he never shows to anybody. | **by Mark Twain**

@@ -1,1 +1,1 @@
-Everyone is a moon, and has a dark side which he never shows to anybody. | **by Mark Twain**
+Success comes from knowing that you did your best to become the best that you are capable of becoming. | **by John Wooden**

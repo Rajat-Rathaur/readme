@@ -1,1 +1,1 @@
-Success comes from knowing that you did your best to become the best that you are capable of becoming. | **by John Wooden**
+The biggest adventure you can ever take is to live the life of your dreams.  | **by Oprah Winfrey**

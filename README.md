@@ -1,1 +1,1 @@
-The biggest adventure you can ever take is to live the life of your dreams.  | **by Oprah Winfrey**
+Whatever happens always happens on time. | **by Zen Proverb**

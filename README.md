@@ -1,1 +1,1 @@
-Whatever happens always happens on time. | **by Zen Proverb**
+A Quitter never wins - and - a Winner never quits. | **by Napoleon Hill**

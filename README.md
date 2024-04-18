@@ -1,1 +1,1 @@
-A Quitter never wins - and - a Winner never quits. | **by Napoleon Hill**
+A minute's success pays the failure of years. | **by Robert Browning**

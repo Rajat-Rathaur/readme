@@ -1,1 +1,1 @@
-A minute's success pays the failure of years. | **by Robert Browning**
+Don't let the behavior of others destroy your inner peace. | **by Dalai Lama**

@@ -1,1 +1,1 @@
-Don't let the behavior of others destroy your inner peace. | **by Dalai Lama**
+If you don't program yourself, life will program you. | **by Les Brown**

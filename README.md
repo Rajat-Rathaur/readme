@@ -1,1 +1,1 @@
-If you don't program yourself, life will program you. | **by Les Brown**
+Integrity is telling myself the truth. And honesty is telling the truth to other people. | **by Spencer Johnson**

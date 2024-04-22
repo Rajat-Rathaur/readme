@@ -1,1 +1,1 @@
-Integrity is telling myself the truth. And honesty is telling the truth to other people. | **by Spencer Johnson**
+The least deviation from truth will be multiplied later. | **by Aristotle**

@@ -1,1 +1,1 @@
-Accept responsibility for your life. Know that it is you who will get you where you want to go, no one else. | **by Les Brown**
+Everybody by your side ain't on your side. | **by Steve Harvey**

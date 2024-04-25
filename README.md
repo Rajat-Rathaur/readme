@@ -1,1 +1,1 @@
-Everybody by your side ain't on your side. | **by Steve Harvey**
+Even when a friend does something you do not like, he continues to be your friend.  | **by Genghis Khan**

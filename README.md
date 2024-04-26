@@ -1,1 +1,1 @@
-Even when a friend does something you do not like, he continues to be your friend.  | **by Genghis Khan**
+Happiness is a gift and the trick is not to expect it, but to delight in it when it comes. | **by Charles Dickens**

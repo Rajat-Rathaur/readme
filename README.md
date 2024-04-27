@@ -1,1 +1,1 @@
-Happiness is a gift and the trick is not to expect it, but to delight in it when it comes. | **by Charles Dickens**
+Quality means doing it right when no one is looking. | **by Henry Ford**

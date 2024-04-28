@@ -1,1 +1,1 @@
-Quality means doing it right when no one is looking. | **by Henry Ford**
+Pain doesn't last. And when it's gone, we have something to show for it. Growth. | **by Kamal Ravikant**

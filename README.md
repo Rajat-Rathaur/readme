@@ -1,1 +1,1 @@
-Pain doesn't last. And when it's gone, we have something to show for it. Growth. | **by Kamal Ravikant**
+Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny. | **by Steve Maraboli**

@@ -1,1 +1,1 @@
-Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny. | **by Steve Maraboli**
+Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good. | **by Bhagavad Gita**

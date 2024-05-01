@@ -1,1 +1,1 @@
-Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good. | **by Bhagavad Gita**
+I was wise enough to never grow up while fooling most people into believing I had.  | **by Margaret Mead**

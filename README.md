@@ -1,1 +1,1 @@
-I was wise enough to never grow up while fooling most people into believing I had.  | **by Margaret Mead**
+Do not follow the ideas of others, but learn to listen to the voice within yourself. | **by Dogen**

@@ -1,1 +1,1 @@
-Do not follow the ideas of others, but learn to listen to the voice within yourself. | **by Dogen**
+Great things are not done by impulse, but by a series of small things brought together. | **by Vincent van Gogh**

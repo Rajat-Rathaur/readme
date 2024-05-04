@@ -1,1 +1,1 @@
-Great things are not done by impulse, but by a series of small things brought together. | **by Vincent van Gogh**
+Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. | **by Norman Vincent Peale**

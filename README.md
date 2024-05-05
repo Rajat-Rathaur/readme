@@ -1,1 +1,1 @@
-Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. | **by Norman Vincent Peale**
+Don't try to steer the river. | **by Deepak Chopra**

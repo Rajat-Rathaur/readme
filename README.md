@@ -1,1 +1,1 @@
-Listen to what you know instead of what you fear. | **by Richard Bach**
+Never confuse a single defeat with a final defeat. | **by F. Scott Fitzgerald**

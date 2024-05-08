@@ -1,1 +1,1 @@
-Never confuse a single defeat with a final defeat. | **by F. Scott Fitzgerald**
+Kindness is a language which the deaf can hear and the blind can see. | **by Mark Twain**

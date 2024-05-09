@@ -1,1 +1,1 @@
-Kindness is a language which the deaf can hear and the blind can see. | **by Mark Twain**
+The greatest of empires, is the empire over one's self. | **by Publilius Syrus**

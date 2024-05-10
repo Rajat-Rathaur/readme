@@ -1,1 +1,1 @@
-The greatest of empires, is the empire over one's self. | **by Publilius Syrus**
+Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom. | **by Sonia Ricotti**

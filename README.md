@@ -1,1 +1,1 @@
-Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom. | **by Sonia Ricotti**
+A strong man overcomes an obstacle, a wise man goes the whole way. | **by Zen Proverb**

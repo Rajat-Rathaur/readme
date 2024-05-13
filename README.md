@@ -1,1 +1,1 @@
-A strong man overcomes an obstacle, a wise man goes the whole way. | **by Zen Proverb**
+Superstars think like superstars long before the fans or the press anoint them. | **by John Eliot**

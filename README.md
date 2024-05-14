@@ -1,1 +1,1 @@
-Superstars think like superstars long before the fans or the press anoint them. | **by John Eliot**
+Let each man exercise the art he knows. | **by Aristophanes**

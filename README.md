@@ -1,1 +1,1 @@
-Let each man exercise the art he knows. | **by Aristophanes**
+Think and wonder, wonder and think. | **by Dr. Seuss**

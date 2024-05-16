@@ -1,1 +1,1 @@
-Think and wonder, wonder and think. | **by Dr. Seuss**
+Growth is in a series of mistakes. That's the only way you learn. | **by Steve Harvey**

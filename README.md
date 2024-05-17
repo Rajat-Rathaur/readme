@@ -1,1 +1,1 @@
-Growth is in a series of mistakes. That's the only way you learn. | **by Steve Harvey**
+What you seek is seeking you. | **by Rumi**

@@ -1,1 +1,1 @@
-What you seek is seeking you. | **by Rumi**
+Rest and be kind, you don't have to prove anything. | **by Jack Kerouac**

@@ -1,1 +1,1 @@
-Rest and be kind, you don't have to prove anything. | **by Jack Kerouac**
+He is not a lover who does not love forever. | **by Euripides**

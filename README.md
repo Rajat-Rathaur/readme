@@ -1,1 +1,1 @@
-He is not a lover who does not love forever. | **by Euripides**
+Be mindful. Be grateful. Be positive. Be true. Be kind. | **by Roy T. Bennett**

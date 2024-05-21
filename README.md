@@ -1,1 +1,1 @@
-Be mindful. Be grateful. Be positive. Be true. Be kind. | **by Roy T. Bennett**
+Waste not fresh tears over old griefs. | **by Euripides**

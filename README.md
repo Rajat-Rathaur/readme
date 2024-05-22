@@ -1,1 +1,1 @@
-Waste not fresh tears over old griefs. | **by Euripides**
+My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. | **by Charles Darwin**

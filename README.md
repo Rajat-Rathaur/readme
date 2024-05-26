@@ -1,1 +1,1 @@
-If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving. | **by Martin Luther King, Jr.**
+The longer we dwell on our misfortunes, the greater is their power to harm us. | **by Voltaire**

@@ -1,1 +1,1 @@
-The longer we dwell on our misfortunes, the greater is their power to harm us. | **by Voltaire**
+You miss 100% of the shots you don't take. | **by Wayne Gretzky**

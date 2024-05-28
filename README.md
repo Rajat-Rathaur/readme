@@ -1,1 +1,1 @@
-You miss 100% of the shots you don't take. | **by Wayne Gretzky**
+I do not exist to impress the world. I exist to live my life in a way that will make me happy. | **by Richard Bach**

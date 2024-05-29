@@ -1,1 +1,1 @@
-I do not exist to impress the world. I exist to live my life in a way that will make me happy. | **by Richard Bach**
+He who fails to plan, plans to fail. | **by Unknown**

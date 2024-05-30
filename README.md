@@ -1,1 +1,1 @@
-He who fails to plan, plans to fail. | **by Unknown**
+Don't let your mind stop you. | **by Steve Harvey**

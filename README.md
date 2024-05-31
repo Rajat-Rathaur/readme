@@ -1,1 +1,1 @@
-Don't let your mind stop you. | **by Steve Harvey**
+Vision is the art of seeing things invisible. | **by Jonathan Swift**

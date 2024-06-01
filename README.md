@@ -1,1 +1,1 @@
-Vision is the art of seeing things invisible. | **by Jonathan Swift**
+Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  | **by Denis Waitley**

@@ -1,1 +1,1 @@
-Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  | **by Denis Waitley**
+Freedom is the open window through which pours the sunlight of the human spirit and human dignity. | **by Herbert Hoover**

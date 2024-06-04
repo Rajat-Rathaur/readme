@@ -1,1 +1,1 @@
-Freedom is the open window through which pours the sunlight of the human spirit and human dignity. | **by Herbert Hoover**
+Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. | **by Steve Jobs**

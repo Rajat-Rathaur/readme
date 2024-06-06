@@ -1,1 +1,1 @@
-Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. | **by Steve Jobs**
+Imagination is everything. It is the preview of life's coming attractions. | **by Albert Einstein**

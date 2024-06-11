@@ -1,1 +1,1 @@
-Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have. | **by Norman Vincent Peale**
+Not why the addiction but why the pain. | **by Gabor Mate**

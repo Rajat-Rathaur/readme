@@ -1,1 +1,1 @@
-Not why the addiction but why the pain. | **by Gabor Mate**
+If we have no peace, it is because we have forgotten that we belong to each other. | **by Mother Teresa**

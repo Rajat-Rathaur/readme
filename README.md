@@ -1,1 +1,1 @@
-If we have no peace, it is because we have forgotten that we belong to each other. | **by Mother Teresa**
+If light is in your heart, you will find your way home.   | **by Rumi**

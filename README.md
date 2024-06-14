@@ -1,1 +1,1 @@
-If light is in your heart, you will find your way home.   | **by Rumi**
+The pen is the tongue of the mind.  | **by Miguel de Cervantes**

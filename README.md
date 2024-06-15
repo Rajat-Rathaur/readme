@@ -1,1 +1,1 @@
-The pen is the tongue of the mind.  | **by Miguel de Cervantes**
+You have as much laughter as you have faith. | **by Martin Luther**

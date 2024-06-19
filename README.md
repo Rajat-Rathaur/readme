@@ -1,1 +1,1 @@
-You have as much laughter as you have faith. | **by Martin Luther**
+You can't build a reputation on what you are going to do.  | **by Henry Ford**

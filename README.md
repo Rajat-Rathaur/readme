@@ -1,1 +1,1 @@
-You can't build a reputation on what you are going to do.  | **by Henry Ford**
+True wealth is of the heart, not of the purse. | **by Og Mandino**

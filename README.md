@@ -1,1 +1,1 @@
-True wealth is of the heart, not of the purse. | **by Og Mandino**
+Shoot for the moon, because even if you miss, you'll land among the stars. | **by Les Brown**

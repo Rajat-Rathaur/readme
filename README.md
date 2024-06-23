@@ -1,1 +1,1 @@
-Shoot for the moon, because even if you miss, you'll land among the stars. | **by Les Brown**
+It is startling to realize how much unbelief is necessary to make belief possible. | **by Eric Hoffer**

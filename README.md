@@ -1,1 +1,1 @@
-It is startling to realize how much unbelief is necessary to make belief possible. | **by Eric Hoffer**
+In the middle of difficulty lies opportunity. | **by Albert Einstein**

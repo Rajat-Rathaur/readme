@@ -1,1 +1,1 @@
-In the middle of difficulty lies opportunity. | **by Albert Einstein**
+Life is not just the passing of time. Life is the collection of experiences and their intensity. | **by Jim Rohn**

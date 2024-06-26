@@ -1,1 +1,1 @@
-Life is not just the passing of time. Life is the collection of experiences and their intensity. | **by Jim Rohn**
+What the eye doesn't see and the mind doesn't know, doesn't exist. | **by D. H. Lawrence**

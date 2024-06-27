@@ -1,1 +1,1 @@
-What the eye doesn't see and the mind doesn't know, doesn't exist. | **by D. H. Lawrence**
+Realistic people do not accomplish extraordinary things. | **by John Eliot**

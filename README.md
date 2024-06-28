@@ -1,1 +1,1 @@
-Realistic people do not accomplish extraordinary things. | **by John Eliot**
+Seek not the good in external things;seek it in yourselves. | **by Epictetus**

@@ -1,1 +1,1 @@
-Seek not the good in external things;seek it in yourselves. | **by Epictetus**
+You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible. | **by Norman Vincent Peale**

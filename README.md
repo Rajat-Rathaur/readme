@@ -1,1 +1,1 @@
-You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible. | **by Norman Vincent Peale**
+Projecting your mind into a successful situation is the most powerful means to achieve goals.   | **by Estee Lauder**

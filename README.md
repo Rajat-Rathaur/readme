@@ -1,1 +1,1 @@
-Projecting your mind into a successful situation is the most powerful means to achieve goals.   | **by Estee Lauder**
+We become brave by doing brave acts. | **by Aristotle**

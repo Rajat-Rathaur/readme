@@ -1,1 +1,1 @@
-A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions. | **by Ming-Dao Deng**
+Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. | **by Sigmund Freud**

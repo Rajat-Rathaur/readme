@@ -1,1 +1,1 @@
-Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. | **by Sigmund Freud**
+Everything eaten is killed. Every meal is a sacrifice. | **by Adi Da Samraj**

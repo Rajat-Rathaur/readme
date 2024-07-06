@@ -1,1 +1,1 @@
-Everything eaten is killed. Every meal is a sacrifice. | **by Adi Da Samraj**
+There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. | **by Henry Ward Beecher**

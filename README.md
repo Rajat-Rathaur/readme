@@ -1,1 +1,1 @@
-There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. | **by Henry Ward Beecher**
+Don't bother people for help without first trying to solve the problem yourself. | **by Colin Powell**

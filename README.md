@@ -1,1 +1,1 @@
-Don't be afraid to stand for what you believe in, even if that means standing alone. | **by Unknown**
+You are free, and that is why you are lost. | **by Franz Kafka**

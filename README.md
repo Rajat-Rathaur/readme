@@ -1,1 +1,1 @@
-You are free, and that is why you are lost. | **by Franz Kafka**
+It is better to light a single candle than to curse the darkness. | **by Eleanor Roosevelt**

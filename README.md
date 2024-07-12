@@ -1,1 +1,1 @@
-It is better to light a single candle than to curse the darkness. | **by Eleanor Roosevelt**
+You play the hand you're dealt. I think the game's worthwhile.   | **by Christopher Reeve**

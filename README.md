@@ -1,1 +1,1 @@
-You play the hand you're dealt. I think the game's worthwhile.   | **by Christopher Reeve**
+There are no accidents... there is only some purpose that we haven't yet understood. | **by Deepak Chopra**

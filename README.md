@@ -1,1 +1,1 @@
-There are no accidents... there is only some purpose that we haven't yet understood. | **by Deepak Chopra**
+He who is untrue to his own cause cannot command the respect of others. | **by Albert Einstein**

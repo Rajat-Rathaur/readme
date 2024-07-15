@@ -1,1 +1,1 @@
-He who is untrue to his own cause cannot command the respect of others. | **by Albert Einstein**
+Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway. | **by Earl Nightingale**

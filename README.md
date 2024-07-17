@@ -1,1 +1,1 @@
-Life is but one dream flowing into another. | **by Ming-Dao Deng**
+Be thankful for everything that happens in your life; it's all an experience. | **by Roy T. Bennett**

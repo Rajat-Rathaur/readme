@@ -1,1 +1,1 @@
-Be thankful for everything that happens in your life; it's all an experience. | **by Roy T. Bennett**
+Never argue with ignorance. It only leads to frustration. | **by Unknown**

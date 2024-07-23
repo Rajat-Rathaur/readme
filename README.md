@@ -1,1 +1,1 @@
-If you're not failing every now and again, it's a sign you're not doing anything very innovative. | **by Woody Allen**
+This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play. | **by Alan Watts**

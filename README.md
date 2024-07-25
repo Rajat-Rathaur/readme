@@ -1,1 +1,1 @@
-Freeing oneself from words is liberation.  | **by Bodhidharma**
+Strive for excellence, not perfection, because we don't live in a perfect world. | **by Joyce Meyer**

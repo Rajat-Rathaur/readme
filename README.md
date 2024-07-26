@@ -1,1 +1,1 @@
-Strive for excellence, not perfection, because we don't live in a perfect world. | **by Joyce Meyer**
+A man sees in the world what he carries in his heart. | **by Johann Wolfgang von Goethe**

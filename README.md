@@ -1,1 +1,1 @@
-A man sees in the world what he carries in his heart. | **by Johann Wolfgang von Goethe**
+We don't stop playing because we grow old; we grow old because we stop playing. | **by George Bernard Shaw**

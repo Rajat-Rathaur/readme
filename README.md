@@ -1,1 +1,1 @@
-We don't stop playing because we grow old; we grow old because we stop playing. | **by George Bernard Shaw**
+Thoughts become things. If you see it in your mind, you will hold it in your hand. | **by Bob Proctor**

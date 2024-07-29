@@ -1,1 +1,1 @@
-Thoughts become things. If you see it in your mind, you will hold it in your hand. | **by Bob Proctor**
+The truth is simple. If it was complicated, everyone would understand it. | **by Walt Whitman**

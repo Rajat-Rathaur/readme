@@ -1,1 +1,1 @@
-The truth is simple. If it was complicated, everyone would understand it. | **by Walt Whitman**
+Instead of worrying about what you cannot control, shift your energy to what you can create. | **by Roy T. Bennett**

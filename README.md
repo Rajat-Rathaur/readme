@@ -1,1 +1,1 @@
-Instead of worrying about what you cannot control, shift your energy to what you can create. | **by Roy T. Bennett**
+Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. | **by Richard Bach**

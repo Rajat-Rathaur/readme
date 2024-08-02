@@ -1,1 +1,1 @@
-Motivation gets you going and habit gets you there.   | **by Zig Ziglar**
+Life needs to be more than just solving problems every day. You need to wake up and be excited about the future. | **by Elon Musk**

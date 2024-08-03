@@ -1,1 +1,1 @@
-Life needs to be more than just solving problems every day. You need to wake up and be excited about the future. | **by Elon Musk**
+Everything that is done in the world is done by hope. | **by Martin Luther**

@@ -1,1 +1,1 @@
-Everything that is done in the world is done by hope. | **by Martin Luther**
+Absurdity is the ecstasy of intellectualism. | **by Criss Jami**

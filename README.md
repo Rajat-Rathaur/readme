@@ -1,1 +1,1 @@
-Absurdity is the ecstasy of intellectualism. | **by Criss Jami**
+The more you know, the more you know you don't know. | **by Aristotle**

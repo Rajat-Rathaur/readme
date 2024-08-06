@@ -1,1 +1,1 @@
-The more you know, the more you know you don't know. | **by Aristotle**
+Happiness is only real, when shared. | **by Christopher McCandless**

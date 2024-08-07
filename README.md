@@ -1,1 +1,1 @@
-Happiness is only real, when shared. | **by Christopher McCandless**
+I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. | **by Elon Musk**

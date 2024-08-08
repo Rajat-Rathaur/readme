@@ -1,1 +1,1 @@
-I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. | **by Elon Musk**
+The degree of responsibility you take for your life determines how much change you can create in it. | **by Celestine Chua**

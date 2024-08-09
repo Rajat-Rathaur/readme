@@ -1,1 +1,1 @@
-The degree of responsibility you take for your life determines how much change you can create in it. | **by Celestine Chua**
+The most wasted day of all is that on which we have not laughed. | **by Nicolas Chamfort**

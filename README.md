@@ -1,1 +1,1 @@
-The most wasted day of all is that on which we have not laughed. | **by Nicolas Chamfort**
+Passion creates, addiction consumes. | **by Gabor Mate**

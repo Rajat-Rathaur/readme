@@ -1,1 +1,1 @@
-When something is important enough, you do it even if the odds are not in your favor. | **by Elon Musk**
+Mistakes are painful when they happen, but years later a collection of mistakes is what is called experience. | **by Denis Waitley**

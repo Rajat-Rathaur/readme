@@ -1,1 +1,1 @@
-Great deeds are usually wrought at great risks. | **by Herodotus**
+The wise man reads both books and life itself. | **by Lin Yutang**

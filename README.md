@@ -1,1 +1,1 @@
-The wise man reads both books and life itself. | **by Lin Yutang**
+If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. | **by Barack Obama**

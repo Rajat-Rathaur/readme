@@ -1,1 +1,1 @@
-Today you are you, that is truer than true. There is no one alive who is you-er than you. | **by Dr. Seuss**
+If I cannot do great things. I can do small things in a great way. | **by Martin Luther King, Jr.**

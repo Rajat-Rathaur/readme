@@ -1,1 +1,1 @@
-If I cannot do great things. I can do small things in a great way. | **by Martin Luther King, Jr.**
+Success is not to be pursued, it is to be attracted by the person you become. | **by Jim Rohn**

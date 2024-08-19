@@ -1,1 +1,1 @@
-Success is not to be pursued, it is to be attracted by the person you become. | **by Jim Rohn**
+Unhappiness enters through a door that has been left open. | **by Zen Proverb**

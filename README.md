@@ -1,1 +1,1 @@
-Unhappiness enters through a door that has been left open. | **by Zen Proverb**
+Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. | **by Nelson Mandela**

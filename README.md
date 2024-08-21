@@ -1,1 +1,1 @@
-Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. | **by Nelson Mandela**
+It's your life-but only if you make it so. | **by Eleanor Roosevelt**

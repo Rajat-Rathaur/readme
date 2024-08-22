@@ -1,1 +1,1 @@
-It's your life-but only if you make it so. | **by Eleanor Roosevelt**
+Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future. | **by Deepak Chopra**

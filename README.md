@@ -1,1 +1,1 @@
-Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future. | **by Deepak Chopra**
+It's better to dance than to march through life. | **by Yoko Ono**

@@ -1,1 +1,1 @@
-It's better to dance than to march through life. | **by Yoko Ono**
+It all depends on what you choose to believe. | **by Spencer Johnson**

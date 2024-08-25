@@ -1,1 +1,1 @@
-It all depends on what you choose to believe. | **by Spencer Johnson**
+Unless a man is master of his soul, all other kinds of mastery amount to little. | **by Theodore Roosevelt**

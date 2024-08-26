@@ -1,1 +1,1 @@
-Unless a man is master of his soul, all other kinds of mastery amount to little. | **by Theodore Roosevelt**
+To every action there is always opposed an equal reaction. | **by Isaac Newton**

@@ -1,1 +1,1 @@
-To every action there is always opposed an equal reaction. | **by Isaac Newton**
+You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible. | **by Norman Vincent Peale**

@@ -1,1 +1,1 @@
-Turn your face to the sun, as flowers know how to do. | **by Ming-Dao Deng**
+A diamond is a piece of charcoal that handled stress exceptionally well. | **by Unknown**

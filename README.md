@@ -1,1 +1,1 @@
-A diamond is a piece of charcoal that handled stress exceptionally well. | **by Unknown**
+Do not follow the ideas of others, but learn to listen to the voice within yourself. | **by Dogen**

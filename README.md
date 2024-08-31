@@ -1,1 +1,1 @@
-Do not follow the ideas of others, but learn to listen to the voice within yourself. | **by Dogen**
+In matters of style, swim with the current; in matters of principle, stand like a rock. | **by Thomas Jefferson**

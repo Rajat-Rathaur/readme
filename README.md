@@ -1,1 +1,1 @@
-In matters of style, swim with the current; in matters of principle, stand like a rock. | **by Thomas Jefferson**
+The only place where success comes before work is in the dictionary. | **by Vidal Sassoon**

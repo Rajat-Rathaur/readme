@@ -1,1 +1,1 @@
-The only place where success comes before work is in the dictionary. | **by Vidal Sassoon**
+Life is a long lesson in humility.  | **by James Matthew Barrie**
